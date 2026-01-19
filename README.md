@@ -1,5 +1,7 @@
 <div align=center>
 
+<img width="1100" height="400" alt="2026_01_19_0ra_Kleki" src="https://github.com/user-attachments/assets/82c4336c-7dc6-4e0a-aed3-ef18d3cab5b4" />
+
 
 # $${\color{#d8f5c3} ✦.⁺.✦.⁺.✦}$$
 
