@@ -25,7 +25,9 @@ $${\color{#f4c682} ꒰꒰꩜ \space name \space ! \space 𑁯ᰍ}$$
 $${\color{#f4f183} ୨ৎ \space prn \space / \space prn \space :: \space prn \space / \space prn \space ✦.}$$
 
 
-divi
+<img width="1265" height="193" alt="2026_01_19_0pt_Kleki" src="https://github.com/user-attachments/assets/0949e01b-a8f0-4047-9e93-edf32691e699" />
+
+
 
 <details>
 <summary> $${\color{#83f484} ❀° \space about \space me \space !}$$ </summary>
