@@ -10,7 +10,8 @@ img
 
 $${\color{#d8f5c3} ✦.⁺.✦.⁺.✦}$$
 
-badge
+![Static Badge](https://img.shields.io/badge/flower-flower?logo=gleam&logoColor=%2383f484&label=silly&labelColor=grey&color=%23d8f5c3)
+
 
 pix
 
