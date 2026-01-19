@@ -5,7 +5,8 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F48383&width=435&lines=+%E3%82%9BYou+said+you+loved+me+dandy..%E3%82%9B;kawaii+loon+and+kawaii+blue+did+this)](https://git.io/typing-svg)
 
-img
+<img width="612" height="505" alt="2026_01_19_02q_Kleki" src="https://github.com/user-attachments/assets/c5bfb539-8d1d-4134-bd45-ac2cfd2986d6" />
+
 
 
 $${\color{#d8f5c3} ✦.⁺.✦.⁺.✦}$$
