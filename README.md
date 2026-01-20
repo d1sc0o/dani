@@ -23,9 +23,9 @@ $${\color{#d8f5c3} ✦.⁺.✦.⁺.✦}$$
 
 
 
-$${\color{#f4c682} ꒰꒰꩜ \space name \space ! \space 𑁯ᰍ}$$
+$${\color{#f4c682} ꒰꒰꩜ \space Call \space me \space Dani \space ! \space 𑁯ᰍ}$$
 
-$${\color{#f4f183} ୨ৎ \space prn \space / \space prn \space :: \space prn \space / \space prn \space ✦.}$$
+$${\color{#f4f183} ୨ৎ \space She \space / \space Her \space :: \space They \space / \space Them \space ✦.}$$
 
 
 <img width="1265" height="193" alt="2026_01_19_0pt_Kleki" src="https://github.com/user-attachments/assets/0949e01b-a8f0-4047-9e93-edf32691e699" />
@@ -37,13 +37,13 @@ $${\color{#f4f183} ୨ৎ \space prn \space / \space prn \space :: \space prn \s
 
 
 ![6XtaBR3](https://github.com/user-attachments/assets/2c2debb9-76f6-4d4f-ba43-adba27b66216)
-₊˚ ┊ bullet one
+₊˚ ┊ I have been Dandys #1 fan since game release so I love to call myself Dandy!! Dandy plays a big part in my heart 𐔌՞. .՞𐦯
 
 ![6XtaBR3](https://github.com/user-attachments/assets/2c2debb9-76f6-4d4f-ba43-adba27b66216)
-₊˚ ┊ bullet two
+₊˚ ┊ Taken by my wonderful girlf for 5 years !!! (˶ˆᗜˆ˵)
 
 ![6XtaBR3](https://github.com/user-attachments/assets/2c2debb9-76f6-4d4f-ba43-adba27b66216)
-₊˚ ┊ bullet three
+₊˚ ┊ Fandoms I'm in are Dandy’s world, hello neighbor, bendy, fnf, bfdi (any object show) mlp, bluey, DOD, Reg, The butchery, Forsaken, ^_^, Crk, Fnaf, phighting, bloxtales, ALONE, hello kitty, nyan cat, Lego, undertale, mouth washing, life purpose (red cowboy hat vers) , jsab, cos, pony town, sprinkling, ena, alone, sonic, demon slayer, chainsaw Man , scream, Manafest, Yellowjacket, Stranger things, Trapped, Dark. ect
 
   
 </details>
@@ -52,13 +52,13 @@ $${\color{#f4f183} ୨ৎ \space prn \space / \space prn \space :: \space prn \s
 <summary> $${\color{#83def4} .꩜ \space dni \space ! }$$ </summary>
 
 ![QkQx7RU](https://github.com/user-attachments/assets/66af2f6f-d3c1-44e3-bb1c-7104038f5ee3)
-₊˚ ┊ bullet one
+₊˚ ┊ DNI if you talk about anything sex related or sexual. Will be blocked (◞‸ ◟)💧
 
 ![QkQx7RU](https://github.com/user-attachments/assets/66af2f6f-d3c1-44e3-bb1c-7104038f5ee3)
-₊˚ ┊ bullet two
+₊˚ ┊ Fake illnesses, or experiences (past or present). Will be blocked (⇀‸↼‶)
 
 ![QkQx7RU](https://github.com/user-attachments/assets/66af2f6f-d3c1-44e3-bb1c-7104038f5ee3)
-₊˚ ┊ bullet three
+₊˚ ┊ Plz DNI if you say your Dandys #1 fan. He has a very special place in my heart! Will be hiden for 24 hours or forever (๑-﹏-๑)
 
 
   
@@ -68,13 +68,13 @@ $${\color{#f4f183} ୨ৎ \space prn \space / \space prn \space :: \space prn \s
 <summary> $${\color{#c682f4} ♫¸ \space extras \space !}$$ </summary>
 
 ![6XtaBR3](https://github.com/user-attachments/assets/2c2debb9-76f6-4d4f-ba43-adba27b66216)
-₊˚ ┊ bullet one
+₊˚ ┊ I love playing roblox horrors with my friends! so if you have any good horror games whisp. to me freely!!!
 
 ![6XtaBR3](https://github.com/user-attachments/assets/2c2debb9-76f6-4d4f-ba43-adba27b66216)
-₊˚ ┊ bullet two
+₊˚ ┊ My favorite colors are Yellow and Blue (˶ˆᗜˆ˵)
 
 ![6XtaBR3](https://github.com/user-attachments/assets/2c2debb9-76f6-4d4f-ba43-adba27b66216)
-₊˚ ┊ bullet three
+₊˚ ┊ WE all LOVE SEALS!!! (≧∇≦)
 
 </details>
 
